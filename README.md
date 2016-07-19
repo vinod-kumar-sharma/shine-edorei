@@ -1,0 +1,2 @@
+# shine-edorei
+Edorei Corporation
